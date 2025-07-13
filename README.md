@@ -12,4 +12,4 @@ Enlace video Proyecto Segunda Entrega:
 - https://youtu.be/_bUAjwkbIyw?si=6tyJhCYeaKEtdZJS
 
 Enlace video Proyecto Entrega Final
-- https://youtu.be/FQ9HsXBxmkQ
+- https://youtu.be/gkFiP-3Hdog
